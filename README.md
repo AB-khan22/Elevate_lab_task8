@@ -38,4 +38,15 @@ Would you like me to refine any section or add specific details? 🚀
 ![Reliance Smart logo](https://github.com/user-attachments/assets/6b85525c-6d68-473b-b449-dc04f607eb43)
 
 ![reliance power](https://github.com/user-attachments/assets/f3778b46-025d-4012-8e9b-007cac7a25c2)
+
 ![power model](https://github.com/user-attachments/assets/2f757e30-20bb-40db-b0cb-e87a8f5d7cf1)
+
+![image](https://github.com/user-attachments/assets/26b2c925-5e19-44ce-9078-91f6b11a0dff)
+
+
+https://github.com/user-attachments/assets/c18df8f9-41b6-425b-893d-39e6067d8e89
+
+
+
+
+
